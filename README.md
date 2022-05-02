@@ -33,7 +33,7 @@ I'm a software engineer with 3 years of experience developing complex, high prof
 
 ### [Neosoft Technologies - Mumbai, India](https://www.neosofttech.com)
 
-#### Sr. Software Engineer (June 2021 - Present)
+#### Sr. Software Engineer (Oct 2021 - Present)
 
 #### Software Engineer (June 2019 - May 2021)
 
